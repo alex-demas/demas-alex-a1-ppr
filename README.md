@@ -1,1 +1,1 @@
-# demas-alex-ai-project
+Alex Demas
